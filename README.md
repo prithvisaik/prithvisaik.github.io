@@ -1,2 +1,0 @@
-# prithvisaik.github.io
-portfolio
